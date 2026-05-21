@@ -1,6 +1,6 @@
 Privacy Policy – Việc Nhẹ Volt Cao
 
-Last updated: [DATE]
+Last updated: 21/5/2026
 
 1. Information Collected
 
